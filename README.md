@@ -1,4 +1,4 @@
-# fork# Hivelocity优惠码和2026年最新Hivelocity服务器托管优惠活动整理
+# Hivelocity优惠码和2026年最新Hivelocity服务器托管优惠活动整理
 
 ## Hivelocity 介绍
 
